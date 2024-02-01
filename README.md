@@ -1,6 +1,6 @@
 # 大牛机场官网地址
 
-最新地址：[e300daniu.top](https://daniu.e300daniu.top/#/register?code=7ubFMPkB)
+最新地址：[printboteng.com](https://www.printboteng.com/#/register?code=7ubFMPkB)
 
 ## 大牛机场简介
 
