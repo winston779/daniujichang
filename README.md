@@ -1,6 +1,6 @@
 # 大牛云机场官网地址
 
-最新地址：[printboteng.com](https://www.daniuxx.xyz/#/login?code=IeVnxJeW)
+最新地址：[printboteng.com](https://www.daniuxx.xyz/#/register?code=IeVnxJeW)
 
 ## 大牛云机场简介
 
